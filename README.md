@@ -1,1 +1,1 @@
-## Product pages
+## Product introduction
